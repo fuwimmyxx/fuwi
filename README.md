@@ -1,1 +1,4 @@
-![394fb1bd8cf9e9521e74d4d23e3d8227](https://github.com/fuwimmyxx/fuwi/assets/112647110/5f3873f2-77ed-4716-8e12-1eb4132d3730)
+⁠• ☆ • ☆ •
+![1941b450226688796b2ed4995376fbfe](https://github.com/fuwimmyxx/fuwi/assets/112647110/b31f5792-d7d5-47b0-bba5-ab3610120266)
+I'm working on my carrd so I'll leave here a couple of criteria about myself!
+I'm fuwimmy or just fuwi! 18 y.o! my prns you can see in my profile!
